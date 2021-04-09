@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **lucaslbl@outlook.com**
 
-- ⚡ Fun fact ** - I love learning new technologies and skills**
+- ⚡ Fun fact -  **I love learning new technologies and skills**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
